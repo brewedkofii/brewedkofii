@@ -6,5 +6,5 @@ THE brew solves yumeshipper
 
 i have 10+ pins of this STUPID cute coffee drinking dummy no joke
 
+<img width="736" height="579" alt="image" src="https://github.com/user-attachments/assets/07b0274a-1abb-4467-bec7-50e5716593fc" />
 
-<img width="736" height="981" alt="image" src="https://github.com/user-attachments/assets/f63e7b7a-3ac0-47bc-81cc-e0aa25ba2c6f" />
