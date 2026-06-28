@@ -8,7 +8,8 @@ ${\color{#9E8273}\text{Solves}}$
 ${\color{#9E8273}\text{so}}$ 
 ${\color{#9E8273}\text{MUCH}}$
 
-https://media.discordapp.net/attachments/1461985463463055443/1520629126044713081/Untitled1120_20260628100832.png?ex=6a41e3bb&is=6a40923b&hm=203510202a9aeeae7b3450fc7550b09c822cecdb7189c9275a02ac8872aea642&=&format=webp&quality=lossless&width=576&height=576
+<img width="640" height="640" alt="image" src="https://github.com/user-attachments/assets/9cb874e5-7fc5-4b45-966a-5a2d1b026032" />
+
 
 ${\color{#fff800}\text{and}}$
 ${\color{#fff800}\text{also}}$
