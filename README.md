@@ -16,6 +16,8 @@ ${\color{#fff800}\text{also}}$
 ${\color{#fff800}\text{Verity}}$
 ${\color{#fff800}\text{ig../J}}$
 
-PLEASE IWEC! I AM SENSTIVE EVEN TO JOKES!
+pls iwec ok? i can get hurt even if just a joke so keep that in mind
 
 also : dont cover unless cuds < :o i dont like being covered
+
+i sometimes say stupid things sigh, i try my best to not be do dumb things
