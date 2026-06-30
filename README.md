@@ -16,4 +16,4 @@ ${\color{#fff800}\text{also}}$
 ${\color{#fff800}\text{Verity}}$
 ${\color{#fff800}\text{ig../J}}$
 
-PLEASE IWEC! I AM SO SENSTIVE EVEN TO JOKES!
+PLEASE IWEC! I AM SENSTIVE EVEN TO JOKES!
