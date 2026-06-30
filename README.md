@@ -17,3 +17,5 @@ ${\color{#fff800}\text{Verity}}$
 ${\color{#fff800}\text{ig../J}}$
 
 PLEASE IWEC! I AM SENSTIVE EVEN TO JOKES!
+
+also : dont cover unless cuds < :o i dont like being covered
