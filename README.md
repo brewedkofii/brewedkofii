@@ -25,3 +25,7 @@ i sometimes say stupid things sigh, i try my best to not do dumb things/or say d
 im not that good at comforting ppl but i will listen to you vent..!
 
 i am a minor
+
+doubles of my yume: killdroid n brew , kindly dni..!! i am non sharing with them
+
+i also like.. do oc x canon more than actual yumeshipping haha.
