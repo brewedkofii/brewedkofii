@@ -21,3 +21,7 @@ pls iwec ok? i can get hurt even if just a joke so keep that in mind
 also : dont cover unless cuds < :o i dont like being covered
 
 i sometimes say stupid things sigh, i try my best to not be do dumb things/or say dumb things
+
+im not that good at comforting ppl but i will listen to you vent..!
+
+i am a minor
