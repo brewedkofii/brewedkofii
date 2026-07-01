@@ -29,3 +29,5 @@ i am a minor
 doubles of my yume: killdroid n brew , kindly dni..!! i am non sharing with them
 
 i also like.. do oc x canon more than actual yumeshipping haha.
+
+plspls dont screenshot or copy my ponies, ask me first < :((
