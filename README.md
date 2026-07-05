@@ -4,8 +4,8 @@
   <img width="445" height="445" alt="image" src="https://github.com/user-attachments/assets/1f3575ce-9a7b-454e-bd69-7a1db79394e4" />
 
 
-${\color{#1d0a0a}\text{"Baby}}$
-${\color{#1d0a0a}\text{join}}$
-${\color{#1d0a0a}\text{me}}$
-${\color{#1d0a0a}\text{in}}$
-${\color{#1d0a0a}\text{death."}}$
+${\color{#947265}\text{"Baby}}$
+${\color{#947265}\text{join}}$
+${\color{#947265}\text{me}}$
+${\color{#947265}\text{in}}$
+${\color{#947265}\text{death."}}$
