@@ -5,15 +5,13 @@
 
 ${\color{#810800}\text{check}}$
 ${\color{#b10b00}\text{my}}$
-${\color{#670700}\text{pronouns}}$
+${\color{#be9e5d}\text{pronouns}}$
 ${\color{#b10b00}\text{page}}$
 ${\color{#810800}\text{for}}$
 ${\color{#b10b00}\text{more}}$
-${\color{#670700}\text{information}}$
+${\color{#be9e5d}\text{information}}$
 ${\color{#810800}\text{plspls}}$
 ${\color{#b10b00}\text{ok}}$
-
-my pronouns page for more info plspls ok
 
 [![Visitors](https://api.visitorbadge.io/api/daily?path=brewedkofii&label=feathers%20lost%20.&labelColor=%23511612&countColor=%2315120f)](https://api.visitorbadge.io/api/daily?path=brewedkofii&label=feathers%20lost%20.&labelColor=%23511612&countColor=%2315120f)
 
