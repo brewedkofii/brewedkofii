@@ -4,11 +4,11 @@
 <img width="400" height="346" alt="verity-verity-mod" src="https://github.com/user-attachments/assets/79962e66-b4d8-4dd7-afbf-92a9297b3710" />
 
 ${\color{#810800}\text{check}}$
-${\color{#3b0f0c}\text{my}}$
+${\color{#b10b00}\text{my}}$
 ${\color{#290a08}\text{pronouns}}$
-${\color{#3b0f0c}\text{page}}$
+${\color{#b10b00}\text{page}}$
 ${\color{#810800}\text{for}}$
-${\color{#3b0f0c}\text{more}}$
+${\color{#b10b00}\text{more}}$
 ${\color{#290a08}\text{information}}$
 ${\color{#810800}\text{plspls}}$
 ${\color{#290a08}\text{ok}}$
