@@ -7,4 +7,4 @@ check my pronouns page for more info plspls ok
 
 [![Visitors](https://api.visitorbadge.io/api/daily?path=brewedkofii&label=feathers%20lost%20.&labelColor=%23511612&countColor=%2315120f)](https://api.visitorbadge.io/api/daily?path=brewedkofii&label=feathers%20lost%20.&labelColor=%23511612&countColor=%2315120f)
 
-h[![Visitors]([(https://brewedkofi.atabook.org/).io/api/daily?path=brewedkofii&label=feathers%20lost%20.&labelColor=%23511612&countColor=%2315120f)](https://api.visitorbadge.io/api/daily?path=brewedkofii&label=feathers%20lost%20.&labelColor=%23511612&countColor=%2315120f)
+links : https://brewedkofi.atabook.org/
