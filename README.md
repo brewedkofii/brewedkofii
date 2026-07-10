@@ -5,11 +5,11 @@
 
 ${\color{#810800}\text{check}}$
 ${\color{#b10b00}\text{my}}$
-${\color{#290a08}\text{pronouns}}$
+${\color{#670700}\text{pronouns}}$
 ${\color{#b10b00}\text{page}}$
 ${\color{#810800}\text{for}}$
 ${\color{#b10b00}\text{more}}$
-${\color{#290a08}\text{information}}$
+${\color{#670700}\text{information}}$
 ${\color{#810800}\text{plspls}}$
 ${\color{#b10b00}\text{ok}}$
 
