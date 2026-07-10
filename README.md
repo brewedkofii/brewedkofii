@@ -11,7 +11,7 @@ ${\color{#810800}\text{for}}$
 ${\color{#b10b00}\text{more}}$
 ${\color{#290a08}\text{information}}$
 ${\color{#810800}\text{plspls}}$
-${\color{#290a08}\text{ok}}$
+${\color{#b10b00}\text{ok}}$
 
 my pronouns page for more info plspls ok
 
