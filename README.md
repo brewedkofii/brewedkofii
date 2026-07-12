@@ -13,3 +13,5 @@ ${\color{#b10b00}\text{ok}}$
 [![Visitors](https://api.visitorbadge.io/api/daily?path=brewedkofii&label=feathers%20lost%20.&labelColor=%23511612&countColor=%2315120f)](https://api.visitorbadge.io/api/daily?path=brewedkofii&label=feathers%20lost%20.&labelColor=%23511612&countColor=%2315120f)
 
 [atabook .](https://brewedkofi.atabook.org)
+
+all of this drama is making me tired.
