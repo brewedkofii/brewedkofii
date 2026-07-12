@@ -10,6 +10,6 @@ ${\color{#ff0000}\text{information}}$
 ${\color{#810800}\text{plspls}}$
 ${\color{#b10b00}\text{ok}}$
 
-[![Visitors](https://api.visitorbadge.io/api/daily?path=brewedkofii&label=feathers%20lost%20.&labelColor=%23511612&countColor=%2315120f)](https://api.visitorbadge.io/api/daily?path=brewedkofii&label=feathers%20lost%20.&labelColor=%23511612&countColor=%2315120f)
+![Visitors](https://api.visitorbadge.io/api/visitors?path=brewedkofii&label=lost%20feathers%20.&labelColor=%23810800&countColor=%23000000&labelStyle=lower)
 
 [atabook .](https://brewedkofi.atabook.org)
