@@ -17,3 +17,5 @@ ${\color{#b10b00}\text{ok}}$
 [atabook .](https://brewedkofi.atabook.org)
 
 all drama with bleg and sol i will not torelate anymore . i only play to have fun with you two and friends , not making me stressed and making me chose sides . i love you both but this is making me tired . [do not harass](https://github.com/solstimatic) [any of them involved](https://github.com/blehpigsterr)
+
+also be wary when reading blegs doc . some info does not have the full context , and yet again . DO NOT attack bleg nor sol .
