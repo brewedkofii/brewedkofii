@@ -15,3 +15,5 @@ ${\color{#b10b00}\text{ok}}$
 ![Visitors](https://api.visitorbadge.io/api/visitors?path=brewedkofii&label=lost%20feathers%20.&labelColor=%23810800&countColor=%23000000&labelStyle=lower)
 
 [atabook .](https://brewedkofi.atabook.org)
+
+all drama with bleg and sol i will not torelate anymore . i only play to have fun with you two and friends , not making me stressed .
