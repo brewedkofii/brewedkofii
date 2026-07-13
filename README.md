@@ -26,4 +26,4 @@ The reason why sol is pissed at bleg in the newer pics u see in the doc is becau
 
 Sol has told me that bleg was stalking coal, (sols friend.) which is extremely werid. im sorry bleg but please do NOT bring other ppl that isnt in the main drama.
 
-Sort this out already, i am SICK of this and i am DONE of being quiet.
+Sort this out already, i am SICK of this and i am DONE of being quiet and i didnt WANT to do this but i have no choice now do i? 
