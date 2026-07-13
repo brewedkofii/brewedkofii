@@ -19,3 +19,5 @@ ${\color{#b10b00}\text{ok}}$
 all drama with bleg and sol i will not torelate anymore . i only play to have fun with you two and friends , not making me stressed and making me chose sides . i love you both but this is making me tired . [do not harass](https://github.com/solstimatic) [any of them involved](https://github.com/blehpigsterr)
 
 also be wary when reading blegs doc . some info does not have the full context , this is not made to insult bleg but to tell you that bleg aint innocent either.
+
+The reason why sol is pissed at bleg in the newer pics u see in the doc is because bleg was bringing sols friends into the drama even thought they have nothing to do with it. like coal and dogfangs. except for the friend thats in the fotos telling her its a prank which was false info.
