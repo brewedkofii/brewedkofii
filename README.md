@@ -16,4 +16,4 @@ ${\color{#b10b00}\text{ok}}$
 
 [atabook .](https://brewedkofi.atabook.org)
 
-hi im not tolerating the drama
+a captive little soldier , wrapped around ur finger .
