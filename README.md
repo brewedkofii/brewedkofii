@@ -15,3 +15,5 @@ ${\color{#b10b00}\text{ok}}$
 ![Visitors](https://api.visitorbadge.io/api/visitors?path=brewedkofii&label=lost%20feathers%20.&labelColor=%23810800&countColor=%23000000&labelStyle=lower)
 
 [atabook .](https://brewedkofi.atabook.org)
+
+hi im not tolerating the drama
