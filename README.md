@@ -14,6 +14,7 @@ ${\color{#b10b00}\text{ok}}$
 
 ![Visitors](https://api.visitorbadge.io/api/visitors?path=brewedkofii&label=lost%20feathers%20.&labelColor=%23810800&countColor=%23000000&labelStyle=lower)
 
-[atabook .](https://brewedkofi.atabook.org)
+[<img width="88" height="31" alt="button" src="https://github.com/user-attachments/assets/6e049d30-4d62-42d6-8a73-ecabcff4e407" />
+](https://brewedkofi.atabook.org)
 
 a captive little soldier , wrapped around ur finger .
