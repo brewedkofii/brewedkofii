@@ -20,4 +20,10 @@ all drama with bleg and sol i will not torelate anymore . i only play to have fu
 
 also be wary when reading blegs doc . some info does not have the full context , this is not made to insult bleg but to tell you that bleg aint innocent either.
 
-The reason why sol is pissed at bleg in the newer pics u see in the doc is because bleg was bringing sols friends into the drama even thought they have nothing to do with it. like coal and dogfangs. except for the friend thats in the fotos telling her its a prank which was false info.
+The reason why sol is pissed at bleg in the newer pics u see in the doc is because bleg was bringing sols friends into the drama even tho they have nothing to do with it. like coal and dogfangs. except for the friend thats in the fotos telling her its a prank which was false info. 
+
+(Info im not sure if truthful or not.)
+
+Sol has told me that bleg was stalking coal, (sols friend.) which is extremely werid. im sorry bleg but please do NOT bring other ppl that isnt in the main drama.
+
+Sort this out already, i am SICK of this and i am DONE of being quiet.
