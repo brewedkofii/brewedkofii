@@ -15,9 +15,3 @@ ${\color{#b10b00}\text{ok}}$
 ![Visitors](https://api.visitorbadge.io/api/visitors?path=brewedkofii&label=lost%20feathers%20.&labelColor=%23810800&countColor=%23000000&labelStyle=lower)
 
 [atabook .](https://brewedkofi.atabook.org)
-
-all drama with bleg and sol i will not torelate anymore . i only play to have fun with you two and friends , not making me stressed and making me chose sides . i love you both but this is making me tired . [do not harass](https://github.com/solstimatic) [any of them involved](https://github.com/blehpigsterr)
-
-also be wary when reading blegs doc . some info does not have the full context , this is not made to insult bleg but to tell you that bleg aint innocent either.
-
-Sort this out already, i am SICK of this and i am DONE of being quiet and i didnt WANT to do this but i have no choice now do i? 
