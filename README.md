@@ -19,4 +19,4 @@ ${\color{#b10b00}\text{ok}}$
 
 someone save me from 67 followers i beg
 
-update: cutting ties with sol now + keeping my distance from bleg for awhile until she recovers bc she gen to take a break from pt and focus on herself.
+update: cutting ties with sol now + keeping my distance from bleg for awhile until she recovers bc she gen to take a break from pt and focus on herself. (all the interactions ive ever had with sol is from the past)
