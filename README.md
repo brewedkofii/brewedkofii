@@ -18,3 +18,5 @@ ${\color{#b10b00}\text{ok}}$
 ](https://brewedkofi.atabook.org)
 
 someone save me from 67 followers i beg
+
+update: cutting ties with sol now i guess
